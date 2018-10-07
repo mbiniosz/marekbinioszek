@@ -21,3 +21,7 @@ iu | er | aa |bbv | cc
 a
 anto anto anto
 rmf em zet
+ing pekao pko mbank
+wwww
+trololoolololololololololo
+mis koralgol wie lepiej
