@@ -28,4 +28,10 @@ mis koralgol wie lepiej
 
 **czy warto *to* robic?????????????**??????????
 
-nowy ty nowy antos
+:::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+
+pwd- gdzie ja jestem
+
+co ja robie tuu co Ty tutaj robisz
+
+Robert *Robcik* **Nigdy nie jechalem polonezem**
